@@ -1,3 +1,11 @@
 Orasanu Irina
 
 Originary from Galati, studied ETTI at Politehnica Bucharest, worked as a game tester and also as SD and FO in a multinational in Bucharest for more than 3 years, i moved to Cluj with my family and after a 6 year break i’ve decided to reconvert myself into a different direction, now studying at Codecool.
+## hobies
+i like to play video games
+i like to play with lego creative
+i do alot of diy projects 
+i play with my kids
+i like to travel
+gardening
+
